@@ -1,13 +1,12 @@
 An illustrated novella
 
-# The-Room-1
+# **The Room 1**
 
-A Five Nights at Freddy's Fanmade Original
+## A Five Nights at Freddy's Fan-made Original
 
-"Yet another night"
+_"Yet another night"_
 
-Author- Unknown_527
+* Author- Unknown_527
+* Illustrator- Unknown_527
 
-Illustrator- Unknown_527
-
-Copyright- Unknown_527
+_Copyright- Unknown_527_
