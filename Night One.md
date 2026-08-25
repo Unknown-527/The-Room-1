@@ -6,6 +6,6 @@ He still remembers his first experience of this terrific things-
 
 He had returned from his school as regular and happily and was going for a sleep but he saw something- The flashlight and a taser on his bed. He turned around to see things written on the wall-"They are coming. It is coming." He first thought it to be some joke by a relative's kid that had come over when he was gone. He tried getting some information from his Uncle and Aunt, at least what he called them, but they gave no proper response as to who did it. 
 
-He went to his bed but remained wide awake as if he had just woken up. The things had come. He heard some echo and a sense of fear started getting over him, he wanted to call his guardians but the voice remained stuck in his throat. He started seeing and imagining things, some horrifying, some silhouettes, some shadows and then a few words- YOU WILL DIE.
+He went to his bed but remained wide awake as if he had just woken up. The things had come. He heard some echo and a sense of fear started getting over him, he wanted to call his guardians but the voice remained stuck in his throat. He started seeing and imagining things, some horrifying, some silhouettes, some shadows and then a few words- YOU WILL DIE .
 
-Emotions turned courses, happiness left him fear became the best companion, and death watching through the window. He heard a voice he had never heard before- "You are quite fearful aren't you?"
+Emotions turned courses, happiness left him, fear became the best companion, and death watching through the window. He heard a voice he had never heard before- "You are quite fearful aren't you?"
