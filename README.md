@@ -1,4 +1,4 @@
-An illustrated novella
+A slightly illustrated novella
 
 # **The Room 1**
 
@@ -7,6 +7,6 @@ An illustrated novella
 _"Yet another night"_
 
 * Author- Unknown_527
-* Illustrator- Unknown_527
+* Illustrator- Unknown_527, One more person
 
 _Copyright- Unknown_527_
