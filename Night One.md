@@ -4,7 +4,8 @@ I had been a couple of months since it began.
 
 He still remembers his first experience of this terrific things-
 
-He had returned from his school as regular and happily and was going for a sleep but he saw something- The flashlight and a taser on his bed. He turned around to see things written on the wall-"They are coming. It is coming." He first thought it to be some joke by a relative's kid that had come over when he was gone. He tried getting some information from his Uncle and Aunt, at least what he called them, but they gave no proper response as to who did it. 
+
+"He had returned from his school as regular and happily and was going for a sleep but he saw something- The flashlight and a taser on his bed. He turned around to see things written on the wall-"They are coming. It is coming." He first thought it to be some joke by a relative's kid that had come over when he was gone. He tried getting some information from his Uncle and Aunt, at least what he called them, but they gave no proper response as to who did it. 
 
 He went to his bed but remained wide awake as if he had just woken up. The things had come. He heard some echo and a sense of fear started getting over him, he wanted to call his guardians but the voice remained stuck in his throat. He started seeing and imagining things, some horrifying, some silhouettes, some shadows and then a few words- YOU WILL DIE .
 
@@ -24,9 +25,10 @@ He aimed the taser at the creature and triggered it, a bright light was followed
 
 "- residing in the vents, it gets drawn to the light and has no way to stop if it is startled too much, remember to not let it in at any cost. There is always a slight sound in the vents as long as something is not near your room. I shall _voice cut_", another period of silence but this time it remained. 
 
-The rest of the night it was rather silent, there was only two or more appearance of the creatures and then it was the morning night entering his room."
+The rest of the night it was rather silent, there was only two or more appearance of the creatures and then it was the morning light entering his room."
 
-- back to the present as he stops recalling his memories.
+
+Back to the present as he stops recalling his memories.
 
 He is now a bit more immune to his fear and the things and checks the doorways and the vent. 
 
