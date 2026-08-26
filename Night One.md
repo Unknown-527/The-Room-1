@@ -8,4 +8,10 @@ He had returned from his school as regular and happily and was going for a sleep
 
 He went to his bed but remained wide awake as if he had just woken up. The things had come. He heard some echo and a sense of fear started getting over him, he wanted to call his guardians but the voice remained stuck in his throat. He started seeing and imagining things, some horrifying, some silhouettes, some shadows and then a few words- YOU WILL DIE .
 
-Emotions turned courses, happiness left him, fear became the best companion, and death watching through the window. He heard a voice he had never heard before- "You are quite fearful aren't you?"
+Emotions turned courses, happiness left him, fear became the best companion, and death watching through the window. He heard a voice he had never heard before- "You are quite fearful aren't you? You have just seen a few glimpse of what shall be your life now on. See the flashlight by your side along with the taser, these shall be your helpers, use them as I say.
+
+It's quite dark so the only way to see if things are coming for you is by using the flashlight on the doorways. If things appear use the taser on them. Remember that no time is safe like now"
+
+As it said this he checked a door to see only a shadow-like creature whose eyes were dots but only reflective when the light was on. From the shadow it could be made up that the thing was slightly damaged however.
+
+"You are too slow"
