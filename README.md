@@ -1,4 +1,4 @@
-A slightly illustrated novella
+A slightly illustrated novella(the illustrations may not be posted here)
 
 # **The Room 1**
 
