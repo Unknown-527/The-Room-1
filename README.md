@@ -9,5 +9,5 @@ _"Yet another night"_
 * Author- Unknown_527
 * Illustrator- Unknown_527, One more person
 
-_Copyright 2026- Unknown_527_
+_Copyright 2026- Unknown_527_ -
 - No part of this document can be modified or distributed without my prior permission
