@@ -33,3 +33,13 @@ Back to the present as he stops recalling his memories.
 He is now a bit more immune to his fear and the things and checks the doorways and the vent. 
 
 The voice reached out to him again.
+
+"Welcome back for another night, you are quite  familiar to the ways so I want to tell you something about 'It'."" The creature, It is -(voice cut_)-"
+
+There was something that had always interrupted the speech specially when about 'It'.
+
+There was a long cut, meanwhile he defended himself against the creatures. 
+
+He had known at least most of them, they were not just mere indifferent shadows but different. All of them looked like shadow figures, some came more often than the others. The mostly commonly seen was a shadow figure of a humanoid figure with a a broken hand. On showing some light, the shadows gave the reflection of the point eye and sharp, misaligned spikes as teeths.
+
+Tonight it was the first one to appear.
