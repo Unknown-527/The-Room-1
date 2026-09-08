@@ -8,3 +8,10 @@ _"Yet another night"_
 
 * Author- Unknown_527
 * Illustrator- Unknown_527, One more person
+
+# Order of contents
+
+- Something on the coverpage
+- LICENSE
+- Day 1 
+- Night One
