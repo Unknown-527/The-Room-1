@@ -42,4 +42,21 @@ There was a long cut, meanwhile he defended himself against the creatures.
 
 He had known at least most of them, they were not just mere indifferent shadows but different. All of them looked like shadow figures, some came more often than the others. The mostly commonly seen was a shadow figure of a humanoid figure with a a broken hand. On showing some light, the shadows gave the reflection of the point eye and sharp, misaligned spikes as teeths.
 
-Tonight it was the first one to appear.
+Tonight it was the first one to appear. He used the taser and a bright light made him temporarily blind, the creature was no more nearby. Getting back to his senses, he checked a clock- _2:50_ . He thinks to himself about his suffering- "Why he was the one to suffer? Why only his house did they come?". But he could not think much before he started seeing hallucination-
+
+**_YOU WILL DIE_**
+**_YOU WILL SUFFER_**
+**_YOU SHALL_**
+
+As he sees these, a humanoid robot appeared, one that appeared more dreadful. He had not seen it well before he used the taser by instinct. The bright flash followed the sound of something crashing against something, he hallucinates again-
+
+**_YOU WILL SUFFER_** **_YOU SHALL_**
+
+Fear had grasped him again, for the hallucination could not be a coincidence. He became more alert while the time rushed slowly for him, the number of appearances had increased.
+
+It was _4:55_ as the horrors came to a rest, the morning light floods a part of his small box and the birds hum to the cheerful rise.
+
+It is _5:00_.
+
+(insert THE FLASHLIGHT art)
+(insert THE TASER art)
