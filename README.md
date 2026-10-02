@@ -7,7 +7,7 @@ A slightly illustrated novella(the illustrations may not be posted here)
 _"Yet another night"_
 
 * Author- Unknown_527
-* Illustrator- Unknown_527, One more person
+* Illustrator- Unknown_527
 
 # Order of contents
 
